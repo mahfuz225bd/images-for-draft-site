@@ -1,1 +1,1 @@
-# Placeholder Images and Photos for Draft Websites
+# Placeholder Images and Photos for Websites
